@@ -1,1 +1,0 @@
-# actividadfinal_corte
